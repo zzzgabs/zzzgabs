@@ -4,4 +4,4 @@
 - 🔭 I’m currently working on university projects -> Sistema de Informação FIAP - 2023
 - 🧠 I’m currently learning front-end content
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I love soulslike games, music and sleeping  (_　_)。゜zｚＺ
+- ⚡ Fun fact: I love soulslike games 💀, music🎧 and sleeping  (_　_)。゜zｚＺ
